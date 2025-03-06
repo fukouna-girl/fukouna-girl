@@ -5,7 +5,7 @@ pt purpose only heh
 ![2439a7ff51a44daae9562946bb1833fa](https://github.com/user-attachments/assets/4155603b-aaa2-4d4e-8f1c-b895952c1069)
 
 
-marji     or     mizuki  ,  kyle  !
+marji     or     mizuki  !
 umm no roleplay , i ain't doing it so don't ask me to
 c+h freely , w2i if i don't respond js don't spam
 more info in strawpage ! !
