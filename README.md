@@ -6,7 +6,9 @@ pt purpose only heh
 
 
 marji     or     mizuki  ,  kyle  !
-umm more info in strawpage if you're curious
+umm no roleplay , i ain't doing it so don't ask me to
+c+h freely , w2i if i don't respond js don't spam
+more info in strawpage ! !
 
 
 ![mqqv5i](https://github.com/user-attachments/assets/d1428dd2-a0e5-48a0-9691-f98ce8bf14c2)
